@@ -1,0 +1,1 @@
+# bandwagonhost-osaka-cn2-gia
